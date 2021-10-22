@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Crownify
+- �I code alot and like to pull different pieces of codes together to create something (Before of course asking owners for permission) as well as adding my own codes and files.
